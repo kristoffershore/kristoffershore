@@ -1,1 +1,1 @@
-Currently working as the Catalog Department Lead for the Stage Lighting Store in Jacksonville, Florida.
+Applications developer for the St John's County government in Florida.
